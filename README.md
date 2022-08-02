@@ -88,7 +88,7 @@ You need to install Python, that can be done [here](https://www.python.org)
    ```
 2. how to run
  ```sh
-  run start.bat
+ type start.bat in cmd
    ```
 #### Or this can be done using android with unrooted Termux
 ```
