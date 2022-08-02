@@ -74,7 +74,7 @@ You need to install Python, that can be done [here](https://www.python.org)
 ### Installation
 1. Clone the repo
    ```sh
-   git clone https://github.com/logicguy1/Discord-Nitro-Generator-and-Checker.git
+   git clone git@github.com:nightmare324/-Discord-Nitro-Generator-and-Checker.git
    ```
 2. Install Python packages
    ```sh
@@ -84,7 +84,10 @@ You need to install Python, that can be done [here](https://www.python.org)
    # Unix
    python3.8 -m pip install -r requirements.txt
    ```
-   
+2. how to run
+ ```sh
+  run start.bat
+   ```
 #### Or this can be done using android with unrooted Termux
 ```
 pkg install git
@@ -92,7 +95,7 @@ git clone https://github.com/logicguy1/Discord-Nitro-Generator-and-Checker
 pkg install python
 cd Discord-Nitro-Generator-and-Checker
 pip install -r requirements.txt
-python3 main.py
+start.bat
 ```
    
 ## Usage
