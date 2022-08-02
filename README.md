@@ -17,7 +17,7 @@
   <p align="center">
     A discord nitro generator and checker for all your nitro needs
     <br />
-    <a href="https://github.com/logicguy1/Discord-Nitro-Generator-and-Checker"><strong>Explore the docs »</strong></a>
+    <a href="https://github.com/nightmare324/Discord-Nitro-Generator-and-Checker.git"><strong>Explore the docs »</strong></a>
     <br />
     <br />
     <a href="https://github.com/logicguy1/Discord-Nitro-Generator-and-Checker/issues">Report Bug</a>
@@ -74,7 +74,7 @@ You need to install Python, that can be done [here](https://www.python.org)
 ### Installation
 1. Clone the repo
    ```sh
-   git clone https://github.com/logicguy1/Discord-Nitro-Generator-and-Checker.git
+   git clone https://github.com/nightmare324/Discord-Nitro-Generator-and-Checker.git
    
    cd Discord-Nitro-Generator-and-Checker
    ```
@@ -93,7 +93,7 @@ You need to install Python, that can be done [here](https://www.python.org)
 #### Or this can be done using android with unrooted Termux
 ```
 pkg install git
-git clone https://github.com/logicguy1/Discord-Nitro-Generator-and-Checker.git
+git clone https://github.com/nightmare324/Discord-Nitro-Generator-and-Checker.git
 pkg install python
 cd Discord-Nitro-Generator-and-Checker
 pip install -r requirements.txt
