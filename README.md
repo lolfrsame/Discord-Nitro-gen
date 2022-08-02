@@ -1,4 +1,4 @@
-# -Discord-Nitro-Generator-and-Checker
+# Discord-Nitro-Generator-and-Checker
 
 <p align="center">
 <img src=https://img.shields.io/github/stars/logicguy1/Discord-Nitro-Generator-and-Checker?style=for-the-badge&logo=appveyor&color=blue />
@@ -75,6 +75,8 @@ You need to install Python, that can be done [here](https://www.python.org)
 1. Clone the repo
    ```sh
    git clone https://github.com/logicguy1/Discord-Nitro-Generator-and-Checker.git
+   
+   cd Discord-Nitro-Generator-and-Checker
    ```
 2. Install Python packages
    ```sh
