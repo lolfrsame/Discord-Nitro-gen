@@ -70,6 +70,7 @@ To get a local copy up and running follow these simple steps.
 
 ### Prerequisites
 You need to install Python, that can be done [here](https://www.python.org)
+and you will need git, that can be done [here] (https://git-scm.com/downloads)
 
 ### Installation
 1. Clone the repo
